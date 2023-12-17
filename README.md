@@ -1,4 +1,4 @@
-(https://pbs.twimg.com/profile_images/1736014341789605888/vPQ4-p1L_200x200.jpg)
+
 
 ### Hi there 👋, I'm Ayain Chowdhury 
 #### Cyber Security Specialist 
