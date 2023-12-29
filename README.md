@@ -2,7 +2,7 @@
 
 ### Hi there 👋, I'm Ayain Chowdhury 
 #### Cyber Security Specialist 
-![Cyber Security Specialist ]
+[Cyber Security Specialist ]
 
 _𝐆𝐢𝐯𝐞 𝐑𝐞𝐬𝐩𝐞𝐜𝐭, 𝐓𝐚𝐤𝐞 𝐑𝐞𝐬𝐩𝐞𝐜𝐭 🎭
 
